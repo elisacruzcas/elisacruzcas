@@ -17,7 +17,6 @@
 
 - 📫 How to reach me : elisa.castrillo.cruz@gmail.com
 
-- ⚡ Fun fact **I **
 
 ## 🚀 Languages and Tools: 
 
